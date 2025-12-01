@@ -14,4 +14,3 @@
 
 
 ![WhatsApp Image 2025-11-23 at 13 19 41_92079bf3](https://github.com/user-attachments/assets/b3c46f1d-9394-48cf-8e5a-891f2deead5e)
-<img width="697" height="292" alt="image" src="https://github.com/user-attachments/assets/931385be-3c78-4682-a10c-1924b3faa1d4" />
